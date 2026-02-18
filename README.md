@@ -8,3 +8,5 @@
 YouTube→https://www.youtube.com/live/iQNShRBZGcE?si=z6A_NvsOqfzjoYrb
 X→https://x.com/spl_inkbrush/status/1757355680007328246?s=20
 
+履歴
+2026/2/18　アップロード。画像なし、文字ベースのスゴロク。
